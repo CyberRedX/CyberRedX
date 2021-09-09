@@ -28,6 +28,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about Programming Cause i just love it
 - 📫 How to reach me: cyberred16@gmail.com , [reddit](https://reddit.com/u/CyberRedX)
 
-- 😄 Pronouns: he, his, him etc
+- 😄 Pronouns: he, his, him, kid etc
 - ⚡ Fun fact: Did u know? I am just 13! (you know cause i said it in the start)
 
