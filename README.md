@@ -26,8 +26,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning To use Godot
 - 👯 I’m looking to collaborate on some open source projects, if u have any please let me know
 - 💬 Ask me about Programming Cause i just love it
-- 📫 How to reach me: cyberred16@gmail.com , [reddit](https://reddit.com/u/CyberRedX)
+- 📫 How to reach me: Telegram: @CyberRedX (in telegram)
 
 - 😄 Pronouns: he, his, him, kid etc
-- ⚡ Fun fact: Did u know? I am just 13! (you know cause i said it in the start)
+- ⚡ Fun fact: Did u know? I am just 13! (you knew cause i said it in the start)
 
